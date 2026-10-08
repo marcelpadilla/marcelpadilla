@@ -1,1 +1,3 @@
-🌐 [marcelpadilla.com](https://marcelpadilla.com) · 💼 [LinkedIn](https://www.linkedin.com/in/marcel-padilla/) · 🎓 [Google Scholar](https://scholar.google.com/citations?user=HtxEN4UAAAAJ) · 📫 mail@marcelpadilla.com
+# 🌐 [marcelpadilla.com](https://marcelpadilla.com)
+
+💼 [LinkedIn](https://www.linkedin.com/in/marcel-padilla/) · 🎓 [Google Scholar](https://scholar.google.com/citations?user=HtxEN4UAAAAJ) · 📫 mail@marcelpadilla.com
